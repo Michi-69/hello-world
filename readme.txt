@@ -1,2 +1,2 @@
 Hello!
-ur retarded
+It is a great day
